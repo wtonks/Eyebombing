@@ -1,5 +1,7 @@
 # Eyebombing
 
+See below my collection of original & edited photographs for the Eyebombing project.
+
 ![image](20150930_112452 EDITED.png)
 ![image](20150930_112452.jpg)
 ![image](20150930_112742 EDIT.png)
